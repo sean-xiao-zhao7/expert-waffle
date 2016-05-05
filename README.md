@@ -3,14 +3,24 @@ Rouben's expert waffle recipe
 
 Ingredients
 ---
-* 2 cups all-purpose flour
-* 1 teaspoon salt
-* 4 teaspoons baking powder
-* 2 tablespoons white sugar
-* 2 eggs
-* 1 1/2 cups warm milk
-* 1/3 cup butter, melted
-* 1 teaspoon vanilla extract
+* 4 skinless, boneless chicken breast halves - cut into 1 inch cubes
+* 20 peeled and deveined large shrimp (21 to 30 per pound)
+* 4 teaspoons soy sauce
+* 4 teaspoons rice wine
+* 2 teaspoons sesame oil
+* 1 tablespoon cornstarch
+* 1/2 cup vegetable oil, divided
+* 4 cloves garlic, minced
+* 16 dried red chile peppers, cut in half
+* 2 teaspoons Szechuan peppercorns (optional)
+* 1 red bell pepper, sliced
+* 1 green bell pepper, sliced
+* 1/4 cup dark soy sauce
+* 2 tablespoons rice wine
+* 2 teaspoons white sugar
+* 1 cup salted peanuts
+* 4 green onions, cut into 3 inch lengths
+* 2 dashes sesame oil, or to taste (optional)
 
 Preparation Instructions
 ---
